@@ -13,6 +13,6 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
+* Something interesting about me is - that I am the girls varsity water polo goalie!
+* Ask Mr. Vu anything: dah skibidy?
+* List your sports and extracurriculars you participate in: Waterpolo, Swim (not anymore tho lol), Cyberpatriot, FRC, WiSTEM club (presidency baby), OCSEF, Hydro Grand Prix, Nanovation (maybe again this year), other stuff :p
